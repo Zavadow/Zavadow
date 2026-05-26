@@ -1,7 +1,6 @@
-## Hi HI! Welcome to this trashy page! (Yes I'm serious)
-#### My name is Shads, Here's some basic info (I'll work on SP for that at some point.)
-##### - I'm 20 years old, and play a lot of video games, I'm into STH (Been in it for 9 years!) 
-###### -If you can't tell Zavok's my favorite character, I also love Shadow!
-### I'm also autistic, have some touch discomfort (Mainly don't like being booped!!) BUT IM NICE ENOUGH I DONT BITE! CUDS ARE ALWAYS WELCOMED!! I also do not speak! (Unless I need to, or friends are around!) 
-###### HAI HAI AKAI!! MY FAV SILVER LOVER AND POTATO FRIEND!!!
-<img width="1366" height="768" alt="Screenshot 2026-05-17 9 56 26 PM" src="https://github.com/user-attachments/assets/aced3bf9-3f4e-464d-af8b-a9d624dec78c" />
+## WELCOME TO MY TERRIBLE/SHITTY PAGE!!
+##### Please call me Shads or Zavok either works! AND I SWEAR AS A ZAVOK USER I DONT BITE!! (Zavok and Shadow are comfort characters to me!)
+##### Very basic info, I'm Autistic and incredibly anti-social, i dont speak at all unless if your a friend or if im comfortable, IM OKAY WITH CUDS!! (Yes I'm 20, go ahead call me old it dont offend me)
+###### AND HAI AKAI!!!! MY FAV POTATO!! AND HI TO ANYONE WHO READS THIS!!!! :D
+<img width="2048" height="1676" alt="IMG_1985" src="https://github.com/user-attachments/assets/676cd64f-785c-48e8-8394-ee8580f5e39c" />
+
