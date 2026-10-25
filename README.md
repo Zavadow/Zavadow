@@ -1,7 +1,8 @@
 ## WELCOME TO MY TERRIBLE/SHITTY PAGE!!
-##### Please call me Shads or Zavok either works! AND I SWEAR AS A ZAVOK USER I DONT BITE!! (Zavok and Shadow are comfort characters to me!)
+##### Please call me Shads or Zavok either works! AND I SWEAR AS A ZAVOK USER I DONT BITE!! (Zavok and Shadow are comfort characters to me!, along with Metal Sonic!)
 ##### Very basic info, I'm Autistic and incredibly anti-social, i dont speak at all unless if your a friend or if im comfortable, IM OKAY WITH CUDS!! (Yes I'm 20, go ahead call me old it dont offend me)
-###### AND HAI AKAI!!!! MY FAV POTATO!! AND HI TO ANYONE WHO READS THIS!!!! :D
-###### !Update! if u wanna add my discord (for wtv reason.)it’s tsr_bromega!
+###### I’m very okay with ships! Mostly ship Zavok and Shadow (the name makes it obvious 😭) But! IDM what anyone else ships (Minus anything with minors.) 
+###### !Update! if u wanna add my discord (for wtv reason.)it’s tsr_bromega! (another note! I don’t mind getting gift skins, as I do enjoy wearing them!, just thought I’d add that!)
+### Please Note: I don’t update my Strawpage, PLEASE STOP ASKING ME TO ADD GIMMICKS! I barely use the page anyways!
 <img width="2048" height="1676" alt="IMG_1985" src="https://github.com/user-attachments/assets/676cd64f-785c-48e8-8394-ee8580f5e39c" />
 
